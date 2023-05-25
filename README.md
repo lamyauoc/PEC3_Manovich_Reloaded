@@ -3,7 +3,7 @@
 ### Recurso de aprendizaje de Cultura Digital 
 
 
-Autor: Lamya
+Autor: Lamya Chaoui Bouhlouba
 
 
 Fecha: 25/05/2023
